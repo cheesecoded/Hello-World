@@ -1,2 +1,2 @@
 # Hello-World
-Brand new to this weird world
+Brand new to this weird amazing world!
